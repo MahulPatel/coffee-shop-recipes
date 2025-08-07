@@ -25,7 +25,7 @@
 
 ### Step 4
 
-- Froth almond milk using your preferred method.
+- Froth whole milk using your preferred method.
 
 ### Step 5
 
