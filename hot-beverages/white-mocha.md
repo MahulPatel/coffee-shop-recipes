@@ -25,7 +25,7 @@
 
 ### Step 4
 
-- Froth whole milk using your preferred method.
+- Froth wholes milk using your preferred method.
 
 ### Step 5
 
